@@ -1,0 +1,2 @@
+# Earning-
+Not allowed 
